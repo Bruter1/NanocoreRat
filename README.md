@@ -38,4 +38,4 @@ Note: this is a high-level, informational description. Using or distributing RAT
 
 
 
-https://web-assets.esetstatic.com/wls/2022/11/6.jpg
+<a href="https://radikal.host/i/9bSWag"><img src="https://e.radikal.host/2025/09/28/6.jpg" alt="6.jpg" border="0"></a>
